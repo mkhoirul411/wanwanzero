@@ -1,1 +1,1 @@
-# wanwanzero HACKTOBER SEKARANG 20
+# wanwanzero HACKTOBER SAIKI 2020
